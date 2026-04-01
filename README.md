@@ -1,1 +1,1 @@
-# privacy-policy
+# akadika-privacy-policy
